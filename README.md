@@ -8,4 +8,3 @@ sdasdadadasdadadads
 ## 😊 felicidade 
 - [Bem estar](www.google.com.br).
 
-## ❤ Amor
